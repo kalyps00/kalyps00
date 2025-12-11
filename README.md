@@ -8,7 +8,6 @@
 
 - 📫 How to reach me **kamil.pawlikowski.dev@gmail.com**
 
-- 📄 Know about my experiences **[https://drive.google.com/file/d/1_48s5X227OtkbrCoN5n6IzoovGIMsUVw/view?usp=sharing](https://drive.google.com/file/d/1_48s5X227OtkbrCoN5n6IzoovGIMsUVw/view?usp=sharing)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
